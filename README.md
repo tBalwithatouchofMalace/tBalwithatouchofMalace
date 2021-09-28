@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tBalwithatouchofMalace
-- 👀 I’m interested in ... ataining self actualization
+- 👀 I’m interested in ... attaining self actualization
 - 🌱 I’m currently learning ... to be more patient
 - 💞️ I’m looking to collaborate on ... making more money
 - 📫 How to reach me ... linkedin.com/tysonbaldwin
